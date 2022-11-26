@@ -1,2 +1,2 @@
-# idk-rmean
-holyubofficial.net website-aio-e9x.koyeb.app/ 
+how to use (if ur that dumb)
+just click on any link in the about section
