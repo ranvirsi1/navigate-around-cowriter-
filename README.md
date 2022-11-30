@@ -1,3 +1,4 @@
+NOTE: since github woudent let me put the link in here it is
 how to use (if ur that dumb)
 just click on any link in the about section
 
