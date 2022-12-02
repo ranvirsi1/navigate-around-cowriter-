@@ -1,4 +1,5 @@
 NOTE: since github woudent let me put the link in here it is https://sites.google.com/view/sealcentral/home?authuser=0
+another link!!! https://now.gg/games.html
 
 how to use (if ur that dumb)
 just click on any link in the about section
